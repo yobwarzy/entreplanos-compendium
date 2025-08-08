@@ -1,1 +1,1 @@
-# entreplanos-compendium
+Entre Planos - Explore o Multiverso
